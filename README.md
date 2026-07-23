@@ -1,0 +1,1 @@
+# Klyp email assets
